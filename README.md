@@ -17,7 +17,9 @@
 
 
 ## **三、联系方式**
-如需要完整项目，请联系
+如需要完整项目，请访问https://mbd.pub/o/bread/aZ6clp9q购买
+
+或联系
 
 <div align=center>
 <img src="data/wechat.jpg" width="50%">
